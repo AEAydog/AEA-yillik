@@ -29,3 +29,35 @@ O zaman sana bi hikaye anlatayım kardeş. Bir çocuk ortaya çıktı. Yusuf kar
 
 # YUSUF U:
 Nerden başlanır hiç bilmiyorum be abi. Dile kolay 23 senelik hayatımın 12 senesi seninle geçti. İnsan diyor ki bir noktada şiddetli bir kavga olur, araya mesafe girer, bir şey olur yollar ayrılır; sonuçta birçok insan bu kadar sene evli kalamıyor be kardeşim. Yok arkadaş düşündükçe yaşanan onca şeyi aklım almıyor. Ben seninle bir duvar önünde "fındık yen mi?" kadar yıkık da oldum, "0 mı 1 mi?" zamanındaki kadar cesur da oldum, güneşin altındaki duba kadar huzurlu da oldum, "abi NFS çok iyi yaa" kadar neşeli de oldum, kısaca oldum da oldum bilader. Bütün enlerimin içinde sen de var oldun, baş tacı oldun. Birlikte tokatlamadık adam mı bıraktık, sövmedik konu mu bıraktık, ağlamadık dert mi bıraktık, atlatmadık travma mı bıraktık, geçilmedik zorluk mu bıraktık, oynanmadık oyun mu bıraktık, kısaca yaşanmadık anı bırakmadık zannediyor insan. Ama yok hoca, insan böyle kardeşiyle oldu mu her olay başka macera, her dert başka neşe oluyor biliyor musun? Onca ağlamamı çektiğin, hiçbir fikrimi yargılamadığın, birçok zevkimi geliştirdiğin ve her şeyden önemlisi yanımda olduğun ve olacağın için teşekkür ederim.
+
+# DORA A:
+En eski, evladiyelik dostuma, Abel'a,
+
+Arkadaşlığımızın sekizinci senesinde ilerlerken attığın bir başka adımı kutluyorum. Sekiz sene önemli, çünkü ben hem geçimsiz hem de sürekli şehirden şehre taşınan biriyim. Şimdi, bazı şeyleri ve kıymetlerini tekrar hatırlatmak ve bazı sözler vermek üzere bir kere daha senin için yazıyorum.
+
+***
+
+Put your heels against the wall, I swear you got a little taller since I saw you.
+I'll still destroy you.
+Benim eskisi kadar dahil olmadığım bir dört sene geçirdin. Seni her gördüğümde anlamadığım, takip edemediğim bazı şeyler vardı. Bir yandan yürüyeceğimiz yolların ayrımında, bir yandan da bir sonraki maceralarımızın hazırlığıydı bu dört sene. Yine de bu dört seneyi kesiştirebildiğimiz anlarda neden bunca yılı artık uzak da olsa hep kolumuzun altında, ceplerimizde veya yakalarımızda taşıdığımızı tekrar tekrar hissettik.
+
+***
+
+Raise our heavenly glasses to the heavens,
+Squalor Victoria!
+Başımıza ne  geleceğini bilmeden, bir sonraki adımı göremeden geleceğimize nice kadehler kaldıracağız. Ne kadar uyumlu ve iyi arkadaşlar olduğumuzu kendimize ve herkese gösterebilmek için giydiğimiz takımlarla. Sonuçta, ne kadar iyi arkadaşlar olduğumuzu gösterebilmek için bir podcast ve birkaç yaz tatili yaptık. Kim bilir daha neler yapacağız.
+
+***
+
+Gods come, and gods go. Mortals flicker and flash and fade. Worlds don't last; and stars and galaxies are transient, fleeting things that twinkle like fireflies and vanish into cold and dust. But I can pretend...
+Dünyaya veya bize ne olursa olsun bağımızın devam edeceğine dair inancım asla sarsılmadı. Sorumluluklarımızla kafayı bozabilir, kendi doğrumuzun ve yanlışımızın içinde kaybolabilir, dünyanın kalanından kaçabiliriz. Yine de yıldızları görebildiğimiz ya da sineklere toz yutturan parıldağın cılız ışığıyla aydınlanan oturma odasında geçen gecelerde her zaman o anları yaşayabilecekmiş gibi yapabiliriz.
+
+***
+
+Anılar, yüzen geniş bir bulut gibi,
+Günbatımı, eski bildiklerin ayrılışı gibi
+Kenetlenmiş elleriyle eğilen, uzaklaşınca.
+Atlarımız birbirine kişniyor
+biz ayrılırken.
+
+Mezuniyetini kutluyorum, hayatının bizi biraz daha uzaklaştıracak bir sonraki dönemine geçerken seni eski bir dostu karşılar gibi uğurluyorum.
