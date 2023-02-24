@@ -39,24 +39,30 @@ Arkadaşlığımızın sekizinci senesinde ilerlerken attığın bir başka adı
 
 Put your heels against the wall, I swear you got a little taller since I saw you.
 I'll still destroy you.
+
 Benim eskisi kadar dahil olmadığım bir dört sene geçirdin. Seni her gördüğümde anlamadığım, takip edemediğim bazı şeyler vardı. Bir yandan yürüyeceğimiz yolların ayrımında, bir yandan da bir sonraki maceralarımızın hazırlığıydı bu dört sene. Yine de bu dört seneyi kesiştirebildiğimiz anlarda neden bunca yılı artık uzak da olsa hep kolumuzun altında, ceplerimizde veya yakalarımızda taşıdığımızı tekrar tekrar hissettik.
 
 ***
 
 Raise our heavenly glasses to the heavens,
 Squalor Victoria!
+
 Başımıza ne  geleceğini bilmeden, bir sonraki adımı göremeden geleceğimize nice kadehler kaldıracağız. Ne kadar uyumlu ve iyi arkadaşlar olduğumuzu kendimize ve herkese gösterebilmek için giydiğimiz takımlarla. Sonuçta, ne kadar iyi arkadaşlar olduğumuzu gösterebilmek için bir podcast ve birkaç yaz tatili yaptık. Kim bilir daha neler yapacağız.
 
 ***
 
 Gods come, and gods go. Mortals flicker and flash and fade. Worlds don't last; and stars and galaxies are transient, fleeting things that twinkle like fireflies and vanish into cold and dust. But I can pretend...
+
 Dünyaya veya bize ne olursa olsun bağımızın devam edeceğine dair inancım asla sarsılmadı. Sorumluluklarımızla kafayı bozabilir, kendi doğrumuzun ve yanlışımızın içinde kaybolabilir, dünyanın kalanından kaçabiliriz. Yine de yıldızları görebildiğimiz ya da sineklere toz yutturan parıldağın cılız ışığıyla aydınlanan oturma odasında geçen gecelerde her zaman o anları yaşayabilecekmiş gibi yapabiliriz.
 
 ***
 
 Anılar, yüzen geniş bir bulut gibi,
+
 Günbatımı, eski bildiklerin ayrılışı gibi
+
 Kenetlenmiş elleriyle eğilen, uzaklaşınca.
+
 Atlarımız birbirine kişniyor
 biz ayrılırken.
 
